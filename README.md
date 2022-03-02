@@ -3,9 +3,9 @@
 <h2>کتابخانه میدلاین برای هاست</h2>
 <p>
 فیلم آموزشی:
-https://t.me/wecangp/81
+https://t.me/iborn
 
 کانال آموزشی:
-@WeCanGP
+
 </p>
 </div>
